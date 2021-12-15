@@ -28,6 +28,7 @@ BYU-Idaho Business & Communication Department	Rexburg, Idaho__
 •	Collected receipt from IBC companies and reconciled on the school’s accounting system
 •	Taught financial instructions to financial officers of each IBC companies on monthly basis
 •	Organized and retained many financial documents for IBC program
+•	FORKING FOR GRAND QUESTION
 	
 __Secretary	September 2021 – Present
 BYU-Idaho Student Accounting Society 	Rexburg, Idaho__
@@ -44,7 +45,6 @@ The 50th Infantry Division of Republic of Korea	Uljin, Korea__
 •	Kept tracking for all accounting transactions
 •	Kept strict communication with Sea Observatory Station to schematize unknown vessels
 •	Managed schedule of platoon leader and helped prepare materials for operational plans
-
 
 ### Internships
 
